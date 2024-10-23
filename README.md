@@ -5,5 +5,6 @@ Eu tenho 2 irmãos um mais e velho e um mais novo. Gosto bastante de viajar prin
   
   Esse ano eu comecei a trabalhar, mas não de uma forma registrada. Eu trabalho com meu irmão mais velho que citei acima. Eu trabalho com um ERP chamado **PROTHEUS** ele é um sistema de gestão empresarial desenvolvido pela **TOTVS** [(TOTVS).](https://www.totvs.com/?utm_campaign=totvs-conv-aon-meio-nativa-black-friday-performance-max-rh&utm_source=google-performance-max&utm_medium=cpc&utm_term=black-friday-2023&utm_term=&utm_campaign=TOTVS_CONV_AON_MEIO_NATIVA_BLACK-FRIDAY-PERFORMANCE-MAX&utm_source=adwords&utm_medium=ppc&hsa_acc=5745705588&hsa_cam=20568313823&hsa_grp=&hsa_ad=&hsa_src=x&hsa_tgt=&hsa_kw=&hsa_mt=&hsa_net=adwords&hsa_ver=3&gad_source=1&gclid=Cj0KCQjwveK4BhD4ARIsAKy6pMKijr4hWdR3Cs0DW9wELt0EVNzPE79bZPT-q7x6POq9n3JWlLNlAIcaAjlYEALw_wcB) Isso mudou minha vida de forma considerativa já que agora eu ganho um salário baseado em quantas horas eu trabalho e tenho que administrar o dinheiro de uma forma inteligente. Eu gosto de estudar as coisas do trabalho e utilizo uma plataforma chamada **Sistematizei** [(Plataforma).](https://plataforma.sistematizei.com.br/login)
   
-  E isso é um pouco sobre minha vida hoje em dia estou estudando e curtindo a vida com minha família.   
+Mas é isso, isso é um pouco sobre minha vida hoje em dia estou estudando e curtindo a vida com minha família e amigos.   
      
+ 
